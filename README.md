@@ -1,0 +1,1 @@
+# smartland-thank-you-page
